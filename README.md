@@ -4,5 +4,6 @@ Họ và tên: NGUYỄN QUỐC KHÁNH
 
 Mã số sinh viên: 25119100
 
-Xin chào thầy và các bạn
+CẢM ƠN THẦY ĐÃ CHO NHÓM EM HOÀN THÀNH BÀI TẬP
+
 
